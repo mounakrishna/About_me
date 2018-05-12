@@ -9,5 +9,5 @@
 > ### SBOA school and junior college (LKG to 10th).
 > ### Maharshi International Residential School (11th to 12th).
 > ### Currently I am pursuing B Tech in EEE from NIT Trichy.
-My favourite Marvel character is SPIDERMAN
+### My favourite Marvel character is SPIDERMAN
 ![Spiderman](https://topbackgroundwallpaper.com/wp-content/uploads/2018/01/wallpaper-hd-spiderman-thumb-1920-419933.jpg)
